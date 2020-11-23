@@ -1,3 +1,3 @@
 # Welcome to my blog
-I'm ready to learn and expre many things!
+I'm ready to learn and explore many things!
 I'm glad you are here. I plan to talk about ...
